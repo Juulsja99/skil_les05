@@ -1,6 +1,6 @@
 # Gebakken ei
 
-![Een gebakken ei](Gebakken ei.jfif)
+![Een gebakken ei](https://images.app.goo.gl/uG4sngkQWaRsnDrB7)
 
 ## Benodigdheden
 
