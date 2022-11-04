@@ -1,6 +1,6 @@
 # Gebakken ei
 
-![Alt Text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.ah.nl%2Fallerhande%2Frecept%2FR-R896828%2Fboterham-met-gebakken-ei&psig=AOvVaw3xMj04hX95KYx0ePBHGPfA&ust=1667639859178000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCPCkwNyYlPsCFQAAAAAdAAAAABAE)
+![Alt Text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.ahealthylife.nl%2Fde-voedingswaarde-van-gebakken-ei%2F&psig=AOvVaw1p4uFdyDyVfTSPEKTZgY8V&ust=1667640545783000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCOjf3KOblPsCFQAAAAAdAAAAABAE)
 
 ## Benodigdheden
 
@@ -16,4 +16,3 @@
 4. Laat het eitje ongeveer 4 minuten bakken.
 5. Haal de pan van het vuur en haal het eitje er uit.
 6. Eet smakelijk! 
-
